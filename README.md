@@ -1,3 +1,0 @@
-# Witam! Witam! Witam wszystkich!
-
-Cóż za piękny wieczór! a może już noc...
